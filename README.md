@@ -5,4 +5,6 @@ LG **CAMPION**
 
 >*Love Scars 💕🤞*
 
->**d nako makauwi😢😔**
+>**d nako makuwi😔😢**
+
+[hulicat😸🐺](https://trap-thecat.com/)
