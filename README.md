@@ -2,3 +2,5 @@
 Giann Lorenz M. Paglinawan
 
 >*Love Scars 💕🤞*
+
+>**d nako makauwi😢😔**
