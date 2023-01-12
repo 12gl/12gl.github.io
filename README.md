@@ -15,3 +15,5 @@ LG **CAMPION**
 
 ## *Step 1!*
 mag aral ka po 🤗
+
+![image](https://user-images.githubusercontent.com/122326823/211979682-9390a27b-e1a6-4fcc-a278-62614a0a3e5c.png)
