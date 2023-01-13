@@ -14,3 +14,6 @@ Giann Lorenz M. Paglinawan
 
 ![image](https://user-images.githubusercontent.com/122326823/212214582-e15f5977-889d-4f30-b138-260c26295fd2.png)
 
+>~~gutom nako~~
+
+>mahilig po ako kumain
