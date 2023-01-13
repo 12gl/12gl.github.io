@@ -10,7 +10,7 @@ Giann Lorenz M. Paglinawan
 ![image](https://user-images.githubusercontent.com/122326823/212214712-9b52b621-c829-498f-a561-2656d57074ea.png)
 
 
->"~~Gotta keep an eye out for **Selener👁:nail_care:**~~"
+>"~~Gotta keep an eye out for **Selener👁**~~"
 
 ![image](https://user-images.githubusercontent.com/122326823/212214582-e15f5977-889d-4f30-b138-260c26295fd2.png)
 
