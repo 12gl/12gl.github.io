@@ -1,11 +1,11 @@
 # 12gl.github.io
 Giann Lorenz M. Paglinawan
 
-LG **CAMPION**
+>**d nako makuwi😔😢**
 
 >*Love Scars 💕🤞*
 
->**d nako makuwi😔😢**
+>**takot nakong masugatan😨😰**
 
 [hulicat😸🐺](https://trap-thecat.com/)
 
