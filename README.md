@@ -57,4 +57,7 @@ Spider-Man: Miles Morales
 [fnf](https://fnfgame.co/)
 
 
+freedom wall 
+- [lagay](padlet.com/glpaglinawan/)
+
 
