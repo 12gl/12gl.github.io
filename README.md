@@ -60,6 +60,6 @@ Spider-Man: Miles Morales
 freedom wall 
 - [lagay](padlet.com/glpaglinawan/)
 
-[Visitor Count](https://profile-counter.glitch.me/{12gl}/count.svg)
+
 
 
