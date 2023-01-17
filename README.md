@@ -10,6 +10,7 @@ Giann Lorenz M. Paglinawan
 ![image](https://user-images.githubusercontent.com/122326823/212214712-9b52b621-c829-498f-a561-2656d57074ea.png)
 
 Name: Giann **Lorenz** M. Paglinawan
+
 LG: Campion
 
 Hobby:
