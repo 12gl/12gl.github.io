@@ -52,7 +52,8 @@ Hobby:
 
 
 >When I'm bored
-fnf (https://fnfgame.co/)
+
+[fnf](https://fnfgame.co/)
 
 
 
