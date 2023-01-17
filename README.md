@@ -61,3 +61,6 @@ freedom wall
 - [lagay](padlet.com/glpaglinawan/)
 
 
+![Visitor Count](https : //profile-counter.glitch.me/{YOUR USER}/count.svg)
+
+
